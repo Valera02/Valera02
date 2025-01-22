@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Valera02
 - ✨Creative director and creator of @forartlovers.mag /the best art magazine in the world.
 - 👀 I’m interested in marketing, audiovisual storytelling, and creative direction.
+- 🩵 LinkedIn:https://www.linkedin.com/in/valentina-ramirez-velasquez-4247522b4/
 - 🌱  I’m currently learning fashion design and exploring the intersection between art, architecture, and technology.
 - 💞️  I’m looking to collaborate on innovative marketing campaigns, creative content projects, and fashion-related initiatives.
 - 📫 How to reach me: vale02rv@gmail.com
