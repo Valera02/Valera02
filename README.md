@@ -10,3 +10,4 @@
 - 📚 I’m passionate about books on personal development, wellness, and economics, especially authors like Joe Dispenza Or Bryan Tracy
 - 🌍 I deeply care about the environment and constantly seek ways to connect with nature and contribute to sustainable initiatives.
 - 💃 Dancing brings me joy and fuels my creativity; it’s one of my favorite ways to unwind.
+- 📇 Working on my portafolio
